@@ -11,4 +11,4 @@
 
 ### 📫 Contact
 - Email: kasthurirajabee@gmail.com
-- LinkedIn: https://linkedin.com/in/kasthuri-raja-c
+- LinkedIn: https://www.linkedin.com/in/kasthuri-raja-c-300290178/
